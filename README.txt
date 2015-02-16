@@ -1,4 +1,4 @@
 Created By
 
-Serhat ÇELÝK --> https://github.com/serhat93
-Mucize DEMÝR --> https://github.com/mucize
+Serhat Ã‡ELiK --> https://github.com/serhat93
+Mucize DEMiR --> https://github.com/mucize
